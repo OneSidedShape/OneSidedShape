@@ -1,0 +1,5 @@
+- 👋 Hello! I’m @OneSidedShape 
+- 👀 I’m interested in UX/UI design
+- 🌱 I’m currently learning how to use Adobe Creative Cloud and how to design prototypes
+- 💞️ I’m looking to collaborate on making web designs and expand my knowledge of User Experience world 
+- 📫 How to reach me: marielle.anqin@gmail.com
